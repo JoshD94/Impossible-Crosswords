@@ -1,6 +1,6 @@
 ## TEAM B
 
-1. 
+1. bedroom
 2. 
 3. 
 4. 
