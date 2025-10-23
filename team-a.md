@@ -1,7 +1,7 @@
 ## TEAM A
 
 1. bedroom
-2. 
+2. alive
 3. 
 4. 
 5. 
